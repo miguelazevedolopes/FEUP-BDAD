@@ -1,1 +1,0 @@
-Não estão seguidos, apenas sei que foram depois uns dos outros, daí o "mais tarde" e não continuar como antes
